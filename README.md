@@ -1,0 +1,1 @@
+# dekopinda-penukal-abab-lematang-ilir
