@@ -1,1 +1,1 @@
-# dekopinda-penukal-abab-lematang-ilir
+# dekopinda-karanganyar
